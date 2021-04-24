@@ -1,2 +1,10 @@
-# cringe
-hhhh7gd73ere66ws00000000000000j
+j76
+j77
+j78
+j79
+j80
+j81
+j83
+j84
+j85
+pls no
